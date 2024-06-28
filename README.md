@@ -1,2 +1,1 @@
-# https-bh4muqupisunnidd3narryq.glassdoor.com
-xaxasx
+<h1>subdomain takeover</h1>
